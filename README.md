@@ -1,4 +1,4 @@
-# <p align="center">wall of shame</p>
+# <p align="center">hall of shame</p>
 copycats who refuse to edit/delete their skins will be posted here :p
 
 
